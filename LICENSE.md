@@ -1,4 +1,4 @@
-
+secret Script for blade ball is the best blade ball Script, featuring auto-upgrade and invisibility. Safe and powerful for all your needs.
 
 
 
